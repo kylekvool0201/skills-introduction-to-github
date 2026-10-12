@@ -4,6 +4,8 @@
 
 Hey kylekvool0201!
 
+I am learning how to use github!! Kyle Kvool
+
 Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
